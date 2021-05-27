@@ -1,1 +1,1 @@
-# weqaz2008.github.io
+Map of my favorite destinations
